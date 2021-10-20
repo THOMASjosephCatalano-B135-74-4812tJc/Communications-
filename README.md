@@ -1,1 +1,1 @@
-# Communications-See also previous directory name the same and deleted,,,..
+# Communications-See also previous directory named the same and deleted,,,..
